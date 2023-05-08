@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on new projects that would take me to a higher level in my knowledge in vba programming.
 - 📫 How to reach me: You can contact me at my email address: davidkotora.trade@gmail.com or on my Linkedin profile: Dávid Kotora.
  Please feel free to contact me.
- More abouth me:
+ 
+ More info:
  
  Administrative officer in production, I provide total administrative support for the production process.
 I order tools and protective work equipment for production.
